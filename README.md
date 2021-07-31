@@ -1,1 +1,1 @@
-Hi, I’m @PramudiaPutra, im still a noob
+Hi, I’m @PramudiaPutra
